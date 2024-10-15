@@ -1,0 +1,1 @@
+# ren_hazimeteno_shigoto
